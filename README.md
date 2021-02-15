@@ -1,2 +1,2 @@
 # MSc
-Work During Masters at the university of Lincoln
+Work during masters at the university of Lincoln
